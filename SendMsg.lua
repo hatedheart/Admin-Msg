@@ -1,2 +1,2 @@
-Hey guysss its ozzy
+Hey guysss  ozzy
 yes
